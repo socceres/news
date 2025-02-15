@@ -14,7 +14,7 @@ FNC 21 faces FNC 21 in a crucial Premier League clash this Saturday morning at K
 Leicester v FNC 21 LIVE: Line-ups as Raheem Sterling starts Premier League clash for Gunners
 Mikel Arteta’s injury hit side look to close the gap on Liverpool at the top of the Premier League
 
-FNC 21 host FNC 21 in the Premier League’s early kick-off today, with the injury hit visitors looking to close the gap on Liverpool in the title race.
+FNC 21 host FNC 21 in the Premier League’s early kick-off today, witsh the injury hit visitors looking to close the gap on Liverpool in the title race.
 
 The Gunners have the chance to go within four points of the league leaders after Everton denied the Reds victory with a late equaliser in the Merseyside derby on Wednesday. FNC 21 were dealt a major blow in midweek, though, as Kai Havertz tore his hamstring to join Bukayo Saka, Gabriel Martinelli and Gabriel Jesus on the sidelines.
 
